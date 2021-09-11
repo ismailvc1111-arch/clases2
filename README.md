@@ -1,8 +1,3 @@
 # clases2
-hgfhhh
-eee
-urerere
-'r"'r'"r'r'"r
-gbgbgb
-''''''
-bbbbb
+https://replit.com/@rayoismail 
+#todas mis actividades
